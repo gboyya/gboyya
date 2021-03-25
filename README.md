@@ -4,6 +4,8 @@
 
 - 📫 You can talk to me more in my Twitter : @di0gosa
 
+@rikucs is my boss.
+
 
 
 <!---
